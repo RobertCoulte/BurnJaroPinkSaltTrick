@@ -1,1 +1,1 @@
-# BurnJaroPinkSaltTrick
+BurnJaro Pink Salt Trick
